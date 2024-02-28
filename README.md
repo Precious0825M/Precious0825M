@@ -3,7 +3,7 @@
 I'm @Precious0825M, currently pursuing a BSc in Information Technology with a focus on Computer Science & Informatics at The University of Johannesburg.
 
 - 👀 I’m interested in exploring new technologies, diving into coding projects, and connecting with like-minded individuals.
-- 💞️ I’m looking to collaborate on open-source projects or any interesting tech initiatives.
+- 💞️ I’m looking to collaborate on projects or any interesting tech initiatives.
 - 📫 You can reach me through direct messages here on this platform or via email at mypipsi13@gmail.com.
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am a big fan of football and love to spend my weekends watching the English Premier League. My favorite team is Manchester City!
